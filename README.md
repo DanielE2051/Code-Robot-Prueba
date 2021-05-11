@@ -2,7 +2,7 @@
 
 Dejo las instrucciones que vienen por default,
 Pero tambien te pido una disculpa por mandartelo hasta este momento,
-por cuestiones de pendites atrase la entrega pero lo hice con mucho sacrificio y entrega,
+por cuestiones de pendientes atrase la entrega pero lo hice con mucho sacrificio y entrega,
 espero y este bien,
 saludos cordiales Marcos 
 
